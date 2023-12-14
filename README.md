@@ -64,3 +64,5 @@ https://www.theofficepass.com/toppings/common-problems-entrepreneurs-face-starti
 Enoch Taylor-Nketiah         | Doe Edinam Abla            | Kofi Asare Bamfo           | Timothy Morenikeji Akinremi         | Tolulope Philip Oludipe   | Godfrey Chilebe
 
 https://github.com/kojoboyoo | https://github.com/doeabla | https://github.com/akbamfo | https://github.com/timothyakinremi
+
+follow me on linkedin - https://www.linkedin.com/pulse/indian-startup-ecosystem-enoch-taylor-nketiah%3FtrackingId=jCEVr7E12p377%252BgWF0WLxA%253D%253D/?trackingId=jCEVr7E12p377%2BgWF0WLxA%3D%3D
